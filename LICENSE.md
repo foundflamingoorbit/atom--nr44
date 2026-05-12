@@ -1,4 +1,4 @@
-# 
+# rare Atom for PC | Atom for Windows Theme | file-explorer + debugging offers the most advanced Atom for PC | Atom for Windows theme, with file-explorer and debugging. Ideal for
 
 
 
